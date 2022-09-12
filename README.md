@@ -1,9 +1,22 @@
-# We, [Gueorgui](https://www.are.na/gueorgui),
+# We, [Gueorgui](https://www.are.na/gueorgui)
 
-🧪PM, 🎓MSc SPbU, 🎖️Sgt. MT&A, 🏀6`0 PG
+## 🧪PM
 
+---
+
+## 🎓MSc SPbU
+
+---
+
+## 🎖️Sgt. MT&A
+
+---
+
+## 🏀6`0 PG
+
+---
 > О, Провидѣніе!
 >> Благословеніе
->>> Намъ ниспошли! 
+>>> Намъ ниспошли!
 
 ![A medieval guy refreshing his Facebook account](https://raw.githubusercontent.com/Gueorgui/Gueorgui/main/refresh.webp)
